@@ -8,6 +8,3 @@
 - 📫 How to reach me: [Linkedln:-  Hemant Bansal](https://www.linkedin.com/in/hemant-bansal-29347b171/), 
 [Twitter:- @Hemant_172](https://twitter.com/Hemant_172)
 
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
